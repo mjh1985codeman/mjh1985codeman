@@ -1,3 +1,5 @@
+[![No-Bad-Days.jpg](https://i.postimg.cc/bwCvsv8M/No-Bad-Days.jpg)](https://postimg.cc/18FSds8c)
+
 ### Hi there thanks for stopping by! 👋
 
 - 👨‍👩‍👧‍👧 Dad Life
