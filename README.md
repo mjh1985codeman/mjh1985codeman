@@ -1,4 +1,4 @@
-[![No-Bad-Days.jpg](https://i.postimg.cc/bwCvsv8M/No-Bad-Days.jpg)](https://postimg.cc/18FSds8c)
+[MERN-logo.png](https://postimg.cc/gwVBfT1n)
 
 ### Hi there thanks for stopping by! 👋
 
