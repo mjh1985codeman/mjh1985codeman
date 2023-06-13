@@ -4,7 +4,7 @@
 - 👨‍👩‍👧‍👧  Dad Life
 - 🖥️  Web Developer
 - 🏢  Working Professional with 10+ years of payment industry experience.
-- 📫  How to reach me: Michael.Hodges1985@Yahoo.com
+- 📫  How to reach me: mj.hodges1985@gmail.com
 - 👀  If you're into snooping feel free to checkout my LinkedIn profile [Here](https://www.linkedin.com/in/michael-hodges-937225ba/)
 - ⚽  Soccer Fan #GoNashvilleSC
 - 🌲  Disc Golf Player (IYKYK) 😆
