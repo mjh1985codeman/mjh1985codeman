@@ -1,4 +1,4 @@
-[![MERN-logo.png](https://gifyu.com/image/SjHJP)
+[![SjHJP.gif](https://s13.gifyu.com/images/SjHJP.gif)](https://gifyu.com/image/SjHJP)
 ### Hi there thanks for stopping by! 👋
 
 - 👨‍👩‍👧‍👧  Dad Life
