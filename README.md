@@ -8,4 +8,7 @@
 - 👀  If you're into snooping feel free to checkout my LinkedIn profile [Here](https://www.linkedin.com/in/michael-hodges-937225ba/)
 - ⚽  Soccer Fan #GoNashvilleSC
 - 🌲  Disc Golf Player (IYKYK) 😆
-- 🤝  Don't hesitate let's collaborate!!! 
+- 🤝  Don't hesitate let's collaborate!!!
+
+![Your Badge](https://www.codewars.com/users/mjh1985codeman/badges/large)
+
