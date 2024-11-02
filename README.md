@@ -10,5 +10,3 @@
 - 🌲  Disc Golf Player (IYKYK) 😆
 - 🤝  Don't hesitate let's collaborate!!!
 
-![Your Badge](https://www.codewars.com/users/mjh1985codeman/badges/large)
-
