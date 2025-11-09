@@ -3,7 +3,7 @@
 
 - 👨‍👩‍👧‍👧  Married and Dad Life
 - 🖥️  Web Developer
-- 🏢  Working Professional with 10+ years of payment industry experience.
+- 🏢  FinTech Developer
 - ⚽  Soccer Fan #GoNashvilleSC
 - 🌲  Disc Golf Player (IYKYK) 😆
 - 🤝  Don't hesitate let's collaborate!!!
