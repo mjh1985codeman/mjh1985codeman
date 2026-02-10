@@ -1,4 +1,3 @@
-[![SjKzz.gif](https://s13.gifyu.com/images/SjKzz.gif)](https://gifyu.com/image/SjKzz)
 ### Hi there thanks for stopping by! 👋
 
 - 👨‍👩‍👧‍👧  Married and Dad Life
